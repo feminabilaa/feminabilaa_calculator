@@ -1,1 +1,0 @@
-# feminabilaa_calculator
